@@ -1,7 +1,6 @@
+my sense of humor can be deemed as insensitive at times so be weary of that if you are a sensitive person, i make a lot of kys/kms jokes 
 
-tis i, the juliek octavia of ponytown...
-
-![image](https://64.media.tumblr.com/629746ab9a7d667b0cb96ffe665df19f/38b63ef5ffd8ab92-23/s1280x1920/1ae905cd3dd260816ea0e370125a4930ff3bd513.pnj) art by weizenfeldbouquet on tumblr!! 
+im a introvert so sometimes it takes a bit for me to warm up to people, unfortunately 9 time out of 10 i will not approach someone on pt myself 
 
 i dont have many friends, so just shoot a whisper if u wanna b friends!! srsly PLSSS i have 4 friends rn
 
