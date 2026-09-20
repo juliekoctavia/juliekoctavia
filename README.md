@@ -2,7 +2,7 @@ my sense of humor can be deemed as insensitive at times so be weary of that if y
 
 im a introvert so sometimes it takes a bit for me to warm up to people, unfortunately 9 time out of 10 i will not approach someone on pt myself 
 
-i dont have many friends, so just shoot a whisper if u wanna b friends!! srsly PLSSS i have 4 friends rn
+i dont have many friends, so just shoot a whisper if u wanna b friends!! srsly PLSSS i have 4 friends rn. all of my pt friends list genuinely has been inactive for as long as 2 years 
 
 i hide freely and i have probably over 100 people hidden 
 
