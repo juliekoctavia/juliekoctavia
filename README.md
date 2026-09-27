@@ -1,5 +1,7 @@
 my sense of humor can be deemed as insensitive at times so be weary of that if you are a sensitive person, i make a lot of kys/kms jokes 
 
+i am that one person that sits on pt and does ntohing  SORERYYYYYYYYYY
+
 im a introvert so sometimes it takes a bit for me to warm up to people, unfortunately 9 time out of 10 i will not approach someone on pt myself 
 
 i dont have many friends, so just shoot a whisper if u wanna b friends!! srsly PLSSS i have 4 friends rn. all of my pt friends list genuinely has been inactive for as long as 2 years 
