@@ -4,13 +4,15 @@
 
  ★ my sense of humor can be deemed as insensitive at times so **PLS be weary of that if you are a sensitive person**, i make a lot of kys/kms jokes (as well as teasing my friends)
 
- ☆ im a introvert so sometimes it takes a bit for me to warm up to people, unfortunately 9 time out of 10 i will not approach someone on pt myself 
+ ☆ im a introvert so sometimes it takes a bit for me to warm up to people,
 
  ★ ive been playing pony town since 2020! i am unc i fear 
 
  ☆ i hide freely and i have probably over 100 people hidden, **half the time it isnt personal or permanent**, most the time its just bc theyre in a spot i wanna sit in 
 
-  ★ if you wanna know more about me.. check out my strawpage ! 
+  ★ i play a concerning amount of fortnite 
+
+ ☆ if you wanna know more about me.. check out my strawpage ! 
 
 
 
