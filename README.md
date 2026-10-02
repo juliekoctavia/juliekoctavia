@@ -1,18 +1,21 @@
-my sense of humor can be deemed as insensitive at times so be weary of that if you are a sensitive person, i make a lot of kys/kms jokes 
+<img src="https://64.media.tumblr.com/4589c29c89931ed1746afe44b779afcf/3435201cf1414056-0f/s1280x1920/9d866fcbcb0be3cd72f49e178c21885a00fe6fd2.pnj" width="400" align="left">
 
-i am that one person that sits on pt and does ntohing  SORERYYYYYYYYYY
+ ☆ **i have no real dni since i just wont int with you if i dont wanna but if you willingly call yourself "problematic" pls dont talk to me**
 
-im a introvert so sometimes it takes a bit for me to warm up to people, unfortunately 9 time out of 10 i will not approach someone on pt myself 
+ ★ my sense of humor can be deemed as insensitive at times so **PLS be weary of that if you are a sensitive person**, i make a lot of kys/kms jokes (as well as teasing my friends)
 
-i dont have many friends, so just shoot a whisper if u wanna b friends!! srsly PLSSS i have 4 friends rn. all of my pt friends list genuinely has been inactive for as long as 2 years 
+ ☆ im a introvert so sometimes it takes a bit for me to warm up to people, unfortunately 9 time out of 10 i will not approach someone on pt myself 
 
-i hide freely and i have probably over 100 people hidden 
+ ★ ive been playing pony town since 2020! i am unc i fear 
 
-sourcemates are always welcome to int <33 
+ ☆ i hide freely and i have probably over 100 people hidden, **half the time it isnt personal or permanent**, most the time its just bc theyre in a spot i wanna sit in 
 
-i have no real dni since i just wont int with you if i dont wanna but if you willingly call yourself "problematic" pls dont talk to me 
+  ★ if you wanna know more about me.. check out my strawpage ! 
 
 
-![image](https://i.pinimg.com/736x/20/aa/1f/20aa1fb5dd457549b0e9ad1d940c6256.jpg) 
 
-how do u guys make these things look so cools topsotpsotpospto
+
+
+
+
+
