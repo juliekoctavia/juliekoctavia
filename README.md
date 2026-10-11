@@ -6,7 +6,7 @@
 
  ☆ im a introvert so sometimes it takes a bit for me to warm up to people,
 
- ★ ive been playing pony town since **2020**! i am unc i fear (if you played/hosted mafia or saw a caillou skin running around a lot.. you've probably seen me)
+ ★ ive been playing pony town since **2020**! i am unc i fear (if you played/hosted mafia a lot.. you've probably seen me)
 
  ☆ i hide freely and i have probably over 100 people hidden, **half the time it isnt personal or permanent**, most the time its just bc theyre in a spot i wanna sit in 
 
