@@ -6,19 +6,36 @@
 
  ☆ im a introvert so sometimes it takes a bit for me to warm up to people,
 
- ★ ive been playing pony town since 2020! i am unc i fear 
+ ★ ive been playing pony town since **2020**! i am unc i fear (if you played/hosted mafia or saw a caillou skin running around a lot.. you've probably seen me)
 
  ☆ i hide freely and i have probably over 100 people hidden, **half the time it isnt personal or permanent**, most the time its just bc theyre in a spot i wanna sit in 
 
   ★ i play a concerning amount of fortnite 
 
  ☆ if you wanna know more about me.. [check out my strawpage ! ](https://braintherapy.straw.page)
+<br clear="left" />
+<br />
 
 
+<p align="center">
+XTRA
+<br clear="center" />
+<br />
 
+ <img src="https://64.media.tumblr.com/d2985b51d1a9b8ff22d7046487e70286/3435201cf1414056-74/s1280x1920/53a0dbaee14168e4a84985867d4f9efca90ec3bb.pnj" width="400" align="right">
 
+★ i am **terrible with social cues**, so please if i ever say or do anything you are uncomfortable with,, tell me directly. 
 
+☆ i am almost always sitting at spawn,
 
+★  w2int always, im afk half the time 
 
+☆ 100% okay with inspo taken from my skins but id rather you not full on copy 
 
+★ just because i talk with a period doesnt mean im upset in any way, i just find it funny 
 
+☆ i dont have many friends, especially friends who play pt so a lotta the time i just have the tab open while i play other games 
+
+★ instant perm hide if you still believe in dnt/tt/td in 2026 😭😭 
+
+☆ if you are the type of person to take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
