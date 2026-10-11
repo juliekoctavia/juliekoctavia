@@ -12,7 +12,8 @@
 
   ★ i play a concerning amount of fortnite 
 
- ☆ if you wanna know more about me.. check out my strawpage ! 
+ ☆ if you wanna know more about me.. [check out my strawpage ! ](https://braintherapy.straw.page)
+
 
 
 
