@@ -26,7 +26,7 @@ XTRA
 
 ★ i am **terrible with social cues**, so please if i ever say or do anything you are uncomfortable with,, tell me directly. 
 
-☆ i am almost always sitting at spawn,
+☆ i am almost always sitting at spawn, as of lately most the time with a friend :D  
 
 ★  w2int always, im afk half the time 
 
@@ -36,6 +36,6 @@ XTRA
 
 ☆ i dont have many friends, especially friends who play pt so a lotta the time i just have the tab open while i play other games 
 
-★ instant perm hide if you still believe in dnt/tt/td in 2026 😭😭 
+★ i sometimes dont know when to shut up, feel free to tell me when to stop i will understand trust me.. i jsut get excited about topics i like 
 
 ☆ if you are the type of person to take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
