@@ -30,7 +30,7 @@ XTRA
 
 ★  w2int always, im afk half the time 
 
-☆ 100% okay with inspo taken from my skins but id rather you not full on copy 
+☆ 100% okay with inspo taken from my skins 
 
 ★ i dont like jokes about my appearance  
 
@@ -38,4 +38,4 @@ XTRA
 
 ★ i have autism, because of this i tend to care about people in a certain way that can come off as romantic, i assure you most the time its not 
 
-☆ if you are the type of person to take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
+☆ if you take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
