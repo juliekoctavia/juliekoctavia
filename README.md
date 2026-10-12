@@ -32,10 +32,10 @@ XTRA
 
 ☆ 100% okay with inspo taken from my skins but id rather you not full on copy 
 
-★ just because i talk with a period doesnt mean im upset in any way, i just find it funny 
+★ i dont like jokes about my appearance  
 
 ☆ i dont have many friends, especially friends who play pt so a lotta the time i just have the tab open while i play other games 
 
-★ i sometimes dont know when to shut up, feel free to tell me when to stop i will understand trust me.. i jsut get excited about topics i like 
+★ i have autism, because of this i tend to care about people in a certain way that can come off as romantic, i assure you most the time its not 
 
 ☆ if you are the type of person to take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
