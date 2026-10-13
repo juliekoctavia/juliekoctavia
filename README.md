@@ -1,4 +1,4 @@
-<img src="https://64.media.tumblr.com/4589c29c89931ed1746afe44b779afcf/3435201cf1414056-0f/s1280x1920/9d866fcbcb0be3cd72f49e178c21885a00fe6fd2.pnj" width="400" align="left">
+<img src="https://64.media.tumblr.com/da270022fa89e5431135805dc95c84b7/8bdb76a0c211677c-db/s500x750/2c3e553ee4b3647d62b21870ed90a0fa438a7099.pnj" width="400" align="left">
 
  ☆ **i have no real dni since i just wont int with you if i dont wanna but if you willingly call yourself "problematic" pls dont talk to me**
 
@@ -22,7 +22,7 @@ XTRA
 <br clear="center" />
 <br />
 
- <img src="https://64.media.tumblr.com/d2985b51d1a9b8ff22d7046487e70286/3435201cf1414056-74/s1280x1920/53a0dbaee14168e4a84985867d4f9efca90ec3bb.pnj" width="400" align="right">
+ <img src="https://64.media.tumblr.com/ff89108c11ac18aa5b19ad503e5eb9d3/8bdb76a0c211677c-36/s500x750/b4ed38b35328b18c780e33f884d16a748e986a1b.pnj" width="400" align="right">
 
 ★ i am **terrible with social cues**, so please if i ever say or do anything you are uncomfortable with,, tell me directly. 
 
