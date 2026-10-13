@@ -26,7 +26,7 @@ XTRA
 
 ★ i am **terrible with social cues**, so please if i ever say or do anything you are uncomfortable with,, tell me directly. 
 
-☆ i am almost always sitting at spawn, as of lately most the time with a friend :D  
+☆ i am almost always sitting at spawn, 
 
 ★  w2int always, im afk half the time 
 
