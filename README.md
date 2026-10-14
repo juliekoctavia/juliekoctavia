@@ -18,7 +18,7 @@
 
 
 <p align="center">
-XTRA
+─── ⋆ XTRA ⋆ ───
 <br clear="center" />
 <br />
 
