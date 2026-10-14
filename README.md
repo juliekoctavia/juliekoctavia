@@ -4,7 +4,7 @@
 
  ★ my sense of humor can be deemed as insensitive at times so **PLS be weary of that if you are a sensitive person**, i make a lot of kys/kms jokes (as well as teasing my friends)
 
- ☆ im a introvert so sometimes it takes a bit for me to warm up to people,
+ ☆ im a introvert so i prob wont int first unless ik you <//3
 
  ★ ive been playing pony town since **2020**! i am unc i fear (if you played/hosted mafia a lot.. you've probably seen me)
 
