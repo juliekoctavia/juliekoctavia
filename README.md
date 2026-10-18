@@ -34,7 +34,7 @@
 
 ★ i dont like jokes about my appearance  
 
-☆ i dont have many friends, especially friends who play pt so a lotta the time i just have the tab open while i play other games 
+☆ i dont have many friends so i may be a bit awkward to talk to
 
 ★ i have autism, because of this i tend to care about people in a certain way that can come off as romantic, i assure you most the time its not 
 
