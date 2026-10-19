@@ -10,7 +10,7 @@
 
  ☆ i hide freely and i have probably over 100 people hidden, **half the time it isnt personal or permanent**, most the time its just bc theyre in a spot i wanna sit in 
 
-  ★ i am colorblind so i probably have a few skins that look a lil off.
+  ★ i am colorblind so i probably have a few skins that look a lil off. (tritan)
 
  ☆ if you wanna know more about me.. [check out my strawpage ! ](https://braintherapy.straw.page)
 <br clear="left" />
