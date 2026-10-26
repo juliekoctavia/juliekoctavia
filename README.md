@@ -24,11 +24,11 @@
 
  <img src="https://64.media.tumblr.com/ff89108c11ac18aa5b19ad503e5eb9d3/8bdb76a0c211677c-36/s500x750/b4ed38b35328b18c780e33f884d16a748e986a1b.pnj" width="400" align="right">
 
-★ i am **terrible with social cues**, so please if i ever say or do anything you are uncomfortable with,, tell me directly. 
+★ i am **terrible with social cues**, so please if i ever say or do anything you are uncomfortable with,, tell me directly or we'll both be in an uncomfortable spot.
 
-☆ i am almost always sitting at spawn, 
+☆ i am almost always sitting at spawn
 
-★  w2int always, im afk half the time 
+★ w2int always, im afk half the time 
 
 ☆ 100% okay with inspo taken from my skins 
 
