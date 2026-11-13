@@ -38,4 +38,4 @@
 
 ★ i have autism, so try to not be a dry texter when talking to me. makes it easier to tell tone 
 
-☆ if you take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
+☆ i love matching.. if any of my friends ever wanna match pls ask...
