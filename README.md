@@ -28,14 +28,14 @@
 
 ☆ i am almost always sitting at spawn
 
-★ w2int always, im afk half the time 
+★ w2int **always**, im afk half the time 
 
 ☆ 100% okay with inspo taken from my skins 
 
-★ i dont like jokes about my appearance  
+★ my social battery fluctuates, just because i dont talk much sometimes doesnt mean i dont want company   
 
 ☆ i dont have many friends so i may be a bit awkward to talk to
 
-★ i have autism, because of this i tend to care about people in a certain way that can come off as romantic, i assure you most the time its not 
+★ i have autism, so try to not be a dry texter when talking to me. makes it easier to tell tone 
 
 ☆ if you take __yumeshipping extremely seriously__, pls do not interact with me. yumeshippers outside of that are free to int though
